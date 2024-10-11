@@ -1,9 +1,8 @@
 # el-flechas
-arriba cabrera y frank
-me llamo axel valadez y me gusta la musica y todo lo relacionado con instrumentos musicales y cualquier deporte 
-soy puntual y muy serio y enfocado 
+me llamo axel valadez soy puntual y muy serio y enfocado 
+me gusta la musica y todo lo relacionado con instrumentos musicales y cualquier deporte 
 mi casa en un futuro quiero que sea en una colonia mas sana y segura
-me gustaria ir a cancun y madrid
+me gustaria ir a cancun
 mis pasatiempos son tocar guitarra jugar videojuegos y trabajar
-no hay decepciones solo mas experiencia
-ser mamon
+reprobar lengua y comunicacion
+aprender a tocar guitarra
